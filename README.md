@@ -1,0 +1,2 @@
+# fatality
+new fatality cheat
